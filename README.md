@@ -2,7 +2,7 @@
 - 👀 I’m interested in writing code 
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 Reach me through my email litranguyen@gmail.com
-- 😄 Pronouns: Trang
+- 😄 Pronouns: She/Her
 
 
 <!---
